@@ -1,2 +1,2 @@
 ### Hi there
-this is my profile!
+This is my profile!

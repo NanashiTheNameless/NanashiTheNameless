@@ -1,3 +1,3 @@
 ### Hi there!
 
-[<https://NamelessNanashi.dev/>](<https://NamelessNanashi.dev/>)
+[<https://git.NamelessNanashi.dev/>](<https://git.NamelessNanashi.dev/>)

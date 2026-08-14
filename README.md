@@ -4,9 +4,8 @@
 
 If you wanna support me:
 - [<https://throne.com/namelessnanashi>](<https://throne.com/namelessnanashi>)
-- [<https://buymeacoffee.com/namelessnanashi>](<https://buymeacoffee.com/namelessnanashi>)
-- [<https://www.paypal.me/NamelessNanashi>](<https://www.paypal.me/NamelessNanashi>)
 - [<https://github.com/sponsors/NanashiTheNameless>](<https://github.com/sponsors/NanashiTheNameless>)
+- [<https://buymeacoffee.com/namelessnanashi>](<https://buymeacoffee.com/namelessnanashi>)
 - [<https://ko-fi.com/nanashithenameless>](<https://ko-fi.com/nanashithenameless>)
 
 ---

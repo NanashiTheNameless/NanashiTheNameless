@@ -7,7 +7,6 @@ If you wanna support me:
 - [<https://buymeacoffee.com/NamelessNanashi>](<https://buymeacoffee.com/NamelessNanashi>)
 - [<https://ko-fi.com/NanashiTheNameless>](<https://ko-fi.com/NanashiTheNameless>)
 - [<https://liberapay.com/NamelessNanashi>](<https://liberapay.com/NamelessNanashi>)
-- [<https://thanks.dev/u/gh/NanashiTheNameless>](<https://thanks.dev/u/gh/NanashiTheNameless>)
 - [<https://throne.com/NamelessNanashi>](<https://throne.com/NamelessNanashi>)
 
 ---
